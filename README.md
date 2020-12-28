@@ -1,6 +1,6 @@
 # E ai XOMANOS :call_me_hand: #
 
-### É apenas um laboratório de tentativas !  ###
+### Para um :construction_worker: Operário da Tecnologia ; é :hammer: !!  ###
 
 
 ## Grato  :hand:   :brazil: ##
