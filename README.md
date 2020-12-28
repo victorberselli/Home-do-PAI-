@@ -1,6 +1,7 @@
 # E ai XOMANOS :call_me_hand: #
 
-### Para um :construction_worker: Operário da Tecnologia ; é :hammer: !!  ###
+### Para um Operário da Tecnologia :construction_worker: ###
+### O ; é :hammer: !!  ###
 
 
 ## Grato  :hand:   :brazil: ##
